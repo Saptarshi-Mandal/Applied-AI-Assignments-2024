@@ -1,0 +1,1 @@
+# Applied-AI-Assignments-2024
